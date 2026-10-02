@@ -1,4 +1,3 @@
-# roofpatchrepairguideskearnynj
 # Roof Patch Repair Near Me: The Complete Guide for Kearny, NJ Homeowners
 
 You noticed a brown stain on the ceiling, a few shingles in the yard, or a drip during last night's storm. Now you are searching for [roof patch repair near me](https://roofpatchrepairkearnynj.com/) and trying to figure out one thing: is this a small fix or a big expense?
